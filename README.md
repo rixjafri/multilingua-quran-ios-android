@@ -1,0 +1,1 @@
+multilingua-quran-ios-android
