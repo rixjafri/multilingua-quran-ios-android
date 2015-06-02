@@ -1,0 +1,3 @@
+The Smart Scripture in the smart phone... It will be in the arabic and translation of many other languages aka full multilingual Quran Project.
+
+Under Development in Bangladesh...
